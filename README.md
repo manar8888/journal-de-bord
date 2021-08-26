@@ -1,3 +1,8 @@
-# emz
-
-#### Salut je m'appel Manar et j'ai choisis _multimédia_ parce que la réalité virtuelle m'interesse vraiment ~~beaucoup~~ et de même pour la programmation.####
+# TIM
+#### Salut je m'appel Manar et j'ai choisis _multimédia_ pour la réalité virtuelle qui m'interesse vraiment ~~beaucoup~~ et de même pour les montages.####
+C'est grâce à une amie de famille , qui m'a conseillé ce programme à un souper que je l'ai choisis. 
+Je cherchais une technique, parce que j'aimerais directement rentrer dans le marché du travaille et ne pas être obligé d'aller à l'université.
+Aussi, depuis toute petite , les montages ont été quelque chose auquel j'accordais beaucoup de mon temps.
+J'en faisais pour l'anniversaire de mes amies et sur mes célébrités _préférées.
+Aussi, par rapport à la réalité virtuelle, c'est un de mes animes préférés , nommé ***Sword Art Online*** qui m'a inspiré, parce que le concept,
+C'est un groupe de personne coincé dans une réalité virtuelle à cause d'un VR casque ___déféctueux___.
