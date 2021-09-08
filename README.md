@@ -1,5 +1,5 @@
 # TIM
-#### Salut je m'appel Manar et j'ai choisis _multimédia_ pour la réalité virtuelle qui m'interesse vraiment ~~beaucoup~~ et de même pour les montages.
+#### Salut je m'appelle Manar et j'ai choisis _multimédia_ pour la réalité virtuelle qui m'interesse vraiment ~~beaucoup~~ et de même pour les montages.
 C'est grâce à une amie de famille , qui m'a conseillé ce programme à un souper que je l'ai choisis. 
 Je cherchais une technique, parce que j'aimerais directement rentrer dans le marché du travaille et ne pas être obligé d'aller à l'université.
 Aussi, depuis toute petite , les montages ont été quelque chose auxquels j'accordais beaucoup de mon temps.
