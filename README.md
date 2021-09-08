@@ -6,3 +6,6 @@ Aussi, depuis toute petite , les montages ont été quelque chose auxquels j'acc
 J'en faisais pour l'anniversaire de mes amies et sur mes célébrités _préférées_.
 Aussi, par rapport à la réalité virtuelle, c'est un de mes animes préférés , nommé ***Sword Art Online*** qui m'a inspiré.
 C'est un groupe de personnes coincé dans une réalité virtuelle à cause d'un VR casque ___déféctueux___.
+
+
+<https://fr.wikipedia.org/wiki/Administrateur_syst%C3%A8me >
