@@ -10,7 +10,7 @@ C'est un groupe de personnes coincé dans une réalité virtuelle à cause d'un 
 
 # Lien 1 #
 https://fr.wikipedia.org/wiki/Administrateur_syst%C3%A8me
-Pour être honnête , ce qui m'a ramené à ce site est ce devoir. Je cherchais un emploi que cette technique pourait me permettre d'acquérir depuis quelque semaines et je suis tombé sur ce travail. En gros , ça consiste à être responsable de la disponibilité des informations au sein de son entreprise et de régler tout problèmes que les clients ont avec leurs ordinateurs.
+Pour être honnête , ce qui m'a ramené à ce site est ce devoir. Je cherchais un emploi que cette technique pourait me permettre d'acquérir depuis quelque semaines et je suis tombé sur ce travail. En gros , ça consiste à être responsable de la disponibilité des informations au sein de son entreprise et de régler tout les problèmes que les clients ont en lien avec leurs ordinateurs.
 
 # Lien 2 # 
 https://www.projections.media/
