@@ -14,7 +14,7 @@ Pour être honnête , ce qui m'a ramené à ce site est ce devoir. Je cherchais 
 
 # Lien 2 # 
 https://www.projections.media/
-Pour le deuxième lien , j'ai choisi ce site parce que l'interface du site web est très intriguante. C'est representé à l'aide d'une vidéo qui joue en plan et qui change constamment de mini clip. De plus, c'est un site de projections média donc je trouve que ça represente bien le sujet présenter.
+Pour le deuxième lien , j'ai choisi ce site parce que l'interface du site web est très intriguante. C'est representé à l'aide d'une vidéo qui joue en plan et qui change constamment de mini clip. De plus, c'est un site de projection média donc je trouve que ça represente bien le sujet présenter.
 
 # Lien 3 #
 https://paris.virtuality.io/
