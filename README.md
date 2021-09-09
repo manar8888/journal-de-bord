@@ -23,3 +23,7 @@ Ce site représente une oeuvre de multimédia , plus spécifiquement celle qui m
 # Lien 4 #
 https://comm-espacepourlavie.ca/horaire-planetarium/?Codelang=Fr
 Pour mon dernier lien , c'est la projection du planéterium que j'ai choisi. Depuis que je suis jeune , j'y vais assez souvent parce que je trouve vraiment l'expérience magique.Le fait de voir les aurores boréales et les étoiles assis sur un coussins parterre en étant au confort et au chaud est quelque chose que tout le monde devrait expérimenter.De plus, le tarif n'est même pas élevé.
+
+# Lien 5 # Film sur KPOP
+https://sat.qc.ca/fr/mutek-exposition-sat
+Lors de la sortie de jeudi passé, il y avait une salle où un documentaire sur la Kpop jouait. Il expliquait comment l'industrie de musique koréene traite mal ces célébrités(ils les font travailler plus que la normal, limitent leur alimentation, ne les laisse pas intéragir avec leurs supporteurs ect..). Cette exposition est celle qui m'a le plus marqué, car en tant que Fan de la Kpop , voir un documentaire qui sensibilise la cause m'a personnellement fais plaisir. Je trouve vraiment qu'on devrait plus en parler , car ces jeunes stars méritent beaucoup mieux.
